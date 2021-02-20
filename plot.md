@@ -1,1 +1,2 @@
-Once upon a time there was a teacher called Jasmeen and she had many students. They did not work on their projects and she was very sad.
+Once upon a time there was a teacher called Jasmeen and she had many students. They did not work on their projects and she was very sad. 
+Then a miracle happened, the students got motivated by her work and started working on their projects. She was happy that her work started paying off. YOyoyoyoyo
